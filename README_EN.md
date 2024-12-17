@@ -40,7 +40,7 @@ Fast reply:
 Slow reply:
 
 - Telegram - [@NightStrang6r](https://t.me/NightStrang6r)
-- Discord - [nightstrang6r](discord.com/users/337518982695485450)
+- Discord - [nightstrang6r](https://discord.com/users/337518982695485450)
 - Lolz.Guru - https://lolz.guru/threads/4149637/
 
 ## 🎉 Enjoy this app and hopefully its helpful!
